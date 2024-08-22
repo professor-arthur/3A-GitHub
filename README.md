@@ -7,3 +7,5 @@
 ### Você pode entrar em contato comigo:
 
 arthurcalliman@prof.educacao.sp.gov.br
+
+![](https://media1.tenor.com/m/PFPHDuvMncYAAAAC/study5x.gif)
